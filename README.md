@@ -1,1 +1,1 @@
-![MCBBC](https://moecount.hentai.net.cn/get/@MCBBC)
+![MCBBC](https://moecount.hentai.net.cn/get/@MCBBC.github)
