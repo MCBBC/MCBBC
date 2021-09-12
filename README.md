@@ -1,1 +1,1 @@
-<img src="https://moecount.awa.tips/get/@MCBBC.github">
+<img src="https://moecount.awa.tips/get/@github.readme">
