@@ -1,1 +1,1 @@
-![MCBBC](https://moecount.awa.tips/get/@MCBBC-README.github?theme=gelbooru)
+![MCBBC](https://moecount.htloli.com/get/@MCBBC-README.github?theme=gelbooru)
